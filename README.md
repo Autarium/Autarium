@@ -1,4 +1,8 @@
-¿What is Autarium Institute?
+# License
+
+Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International Public License
+
+# ¿What is Autarium Institute?
 
 Scientific knowledge and outer space are a human right. Lucrative objetives are a human right too. The individual or individual associatives must be empowered by the law to profit from their commercial agency based on their ecosystemic resources and knowledge. Ecosystemic resources and knowledge distribution must be left out to espontaneous individual and individuals associatives daily basis operations and planification in a lawfull and healthy framework. The responsability to offer a legal and operative market framework is a responsability that each individual and individual associatives must enact from their daily operative basis and not only from govermental policies and regulation, but the market must no be determined by private abusive lucrative policies enpowered by a deorganized market response justified by an enactment of the lucrative right that emanates from commercial law. For law empowerement and enforcement abuse is to be avoid in govermental agency, market empowerement and enforcement abuse is to be avoid in market agency and it is not a responsability only of govermental policies, the economic agency of individuals and individual associatives must operate on responsible market policies of their own as part of a healthy economical framework. For the individual or individuals associatives must have the right to enact their lucrative objetives and agencies, but the law must resctrict them if abuse of any part is committed, it must not shadowed the evidential thruths that are embodied in the legal and ethical corpus and constitution of their societies.
 
